@@ -2,7 +2,8 @@
 
 长期提供免费服务供大家交流学习
 
-详细教程参考PTLSP论坛或网上自行研究
+教程地址：
+https://blog.ptlsp.com/moviepilotwechat
 
 如遇不可使用请及时反馈
 
